@@ -1,6 +1,6 @@
 # How to print screen on mac?
 
-[![how to print screen on mac](red2.png)](https://computersolve.com/how-to-print-screen-on-mac/)
+[![how to print screen on mac](red2.png)](https://icncomputer.com/how-to-print-screen-on-mac/)
 
 
 ## 1. Method
